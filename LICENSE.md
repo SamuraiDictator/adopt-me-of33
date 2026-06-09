@@ -1,4 +1,4 @@
-
+stealth Scripts for adopt me offers the most advanced adopt me Script, with auto-sell and undetectable. Perfect for dominating any match.
 
 
 
